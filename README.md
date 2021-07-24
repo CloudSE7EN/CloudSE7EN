@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CloudSE7EN
+- 👀 I’m interested in games
+- 🌱 I’m currently learning how to programm
